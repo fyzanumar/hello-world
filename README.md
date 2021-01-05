@@ -1,2 +1,2 @@
 # hello-world
-ideas,resources ideas sharing and dicussion
+long ideas,resources ideas sharing and dicussion a lond discussion 
